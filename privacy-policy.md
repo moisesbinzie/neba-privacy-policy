@@ -101,4 +101,4 @@ This policy is effective as of 2022-08-29 and changes to this Privacy Policy are
 
 ### **Contact Us**
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at moisesbinzie@gmail.com.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at neba.mw@gmail.com.
